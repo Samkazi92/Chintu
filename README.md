@@ -1,2 +1,0 @@
-# Chintu
-Bhala Manas
